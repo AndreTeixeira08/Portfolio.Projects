@@ -1,1 +1,0 @@
-André Teixeira Portfolio Project
